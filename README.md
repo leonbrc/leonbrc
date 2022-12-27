@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @leonbrc
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning 1st grade
+- 💞️ I’m looking to collaborate on ???
+- 📫 How to reach me Roblox Brc7777 Gmail me Brckovicleon@gmail.com
+- 🏀 Likes basketball and football
+- 🤬 Dosent Respond To insults
+- 💚 Needs Robux and money
+- 🔵 Favrouite Color Blue
+- 😢 Sucks at football
